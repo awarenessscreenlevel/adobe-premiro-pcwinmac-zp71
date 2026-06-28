@@ -1,4 +1,4 @@
-# 
+# Nativo Adobe Premiere Pro fluxo de trabalho para Mac OS | Premium Adobe Premiere Pro fluxo de trabalho para PC Windows. Com rotoscopia e edição MIDI — otimizado para máximo desempenho em cada plataforma.
 
 
 
